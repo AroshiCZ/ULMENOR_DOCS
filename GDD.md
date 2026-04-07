@@ -1,0 +1,1 @@
+# Uživatelksá Documentace hry *Kroniky Ulmenoru*
